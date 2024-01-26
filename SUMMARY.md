@@ -1,3 +1,4 @@
 # Table of contents
 
-* [Page](README.md)
+* [😎 Summary](README.md)
+* [A Normal Lusty Day](a-normal-lusty-day.md)
