@@ -4,6 +4,10 @@ a story related to a boy who wishes to get a girl for having fun and suddenly a 
 
 
 
+> Disclaimer :- _It's important to recognize that such thoughts are natural, but they shouldn't overpower our ability to live in the present and focus on our goals._
+
+
+
 
 
 
