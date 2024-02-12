@@ -52,7 +52,9 @@ The dichotomy between fantasy and reality serves as a poignant reminder of my in
 
 
 
+***
 
+I was roaming on my roof's balcony
 
 
 
