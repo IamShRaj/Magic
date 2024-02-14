@@ -1,6 +1,6 @@
 # Imagination
 
-I lost her and after asking people about here, all said that she never existed and all the things was just my thoughts.
+Life was Good Until I lost her and after asking people about here, all said that she never existed and all the things was just my thoughts.
 
 But I deeply inside I know that I spent so much beautiful days with her, how is that even possible that the girl was just in my imagination from so many years till now.
 
