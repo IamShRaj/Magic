@@ -1,5 +1,7 @@
 # Without Her
 
+<figure><img src="../.gitbook/assets/Screenshot 2024-02-19 at 8.15.13 AM.png" alt=""><figcaption><p>Outline - <a href="https://app.eraser.io/workspace/9nYvnRIHOVjhy6kDNbVR?origin=share">https://app.eraser.io/workspace/9nYvnRIHOVjhy6kDNbVR?origin=share</a></p></figcaption></figure>
+
 * My body was tethering, I was more than nervous and the time was sliping.
 * first time i was without her, after i found her, it wasnt feeling weel,
 * in a bus, remembering her, her voice, eyes, hair , lips , face everything
