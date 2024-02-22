@@ -27,6 +27,14 @@ We had shared a unique connection, a bond that transcended the ordinary. Her mag
 
 
 
+> How it feels to be richest person in the world but being alone&#x20;
+>
+> How, you are talking to me, I'm not alone
+>
+> Oh, You are that alone
+>
+> Yep!
+
 
 
 
